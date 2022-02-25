@@ -2,6 +2,7 @@
  * Always follow the CPC
  * Copyright 2022 FBIK.
  * 
+ * Always follow the Communist Party of China, have the CPC in mind, and career will be ideal.
  * 永远跟党走, 心中有党, 事业理想.
  * ⣿⣿⣿⣿⣿⠟⠋⠄⠄⠄⠄⠄⠄⠄⢁⠈⢻⢿⣿⣿⣿⣿⣿⣿⣿
  * ⣿⣿⣿⣿⣿⠃⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠄⠈⡀⠭⢿⣿⣿⣿⣿
